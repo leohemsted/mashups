@@ -50,6 +50,7 @@ HONOURABLE MENTIONS
 * notxam - [No Clint in the Eastwood (Jay-Z & Kanye West vs Gorillaz)](http://notxam.tumblr.com/post/49834941113/my-good-friend-lorn-had-this-ridiculous-fantastic)
 * Ryan Lewis - [Pac' Vs. Ferdinand (Franz Ferdinand, Tupac)](https://www.youtube.com/watch?v=1Q9AiWAhfbY)
 * Prince of Ballard - [Rick Ross - Hustlin' (Prince of Ballard mix)](https://www.youtube.com/watch?v=_ZEJacBjuMw) (not actually a mashup)
+* Wax Audio - [Metallica + Stevie Wonder - Sad But Superstitious](https://soundcloud.com/waxaudio/sad-but-superstitious)
 * everything involving thomas the tank engine
 
 DEBATABLE QUALITY BUT I LOVE THEM
