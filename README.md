@@ -15,6 +15,7 @@ BEST MASHUPS EVER
 ALBUMS
 ======
 
+* [Feed The Animals - Girl Talk](http://illegalart.net/girltalk/shop/index.html)
 * [Shit Computer - Kids & Explosions](http://www.kidsandexplosions.com/shitcomputer/)  
 * [In my G4 Over Da Sea - Neutral Bling Hotel](https://psycosis.bandcamp.com/album/in-my-g4-over-da-sea)  
 * [the notorious xx - wait what](http://waitwhat.bandcamp.com/album/the-notorious-xx)  
