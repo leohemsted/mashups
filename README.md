@@ -17,6 +17,7 @@ ALBUMS
 
 * [Feed The Animals - Girl Talk](http://illegalart.net/girltalk/shop/index.html)
 * [Shit Computer - Kids & Explosions](http://www.kidsandexplosions.com/shitcomputer/)  
+* [Naysayer & Gilsun Are In Space - Naysayer & Gilsun](https://www.youtube.com/playlist?list=PLqnbBaKg7cqOGYck_NELVEbXRWUXy1qJa)
 * [In my G4 Over Da Sea - Neutral Bling Hotel](https://psycosis.bandcamp.com/album/in-my-g4-over-da-sea)  
 * [the notorious xx - wait what](http://waitwhat.bandcamp.com/album/the-notorious-xx)  
 * [8 Mile and Abbey - Amsterdom](http://www.8mileandabbey.com/)  
