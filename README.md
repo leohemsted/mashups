@@ -38,6 +38,7 @@ HONOURABLE MENTIONS
 * SmithAgentSmith - [Stuntin Like Mufasa (Lil Wayne vs Lion King)](https://www.youtube.com/watch?v=RlSMlUetZ_Y)
 * BreakManBlues - [Mark Ronson ft Bruno Mars vs Super Smash Bros Melee](https://soundcloud.com/breakmanblues/uptown-targets)
 * Jack Smith - [Break Nothing (Limp Bizkit vs Seinfeld)](https://www.youtube.com/watch?v=HjZyT4YfIiY)
+* Gustav Krantz - [Gotta Catch The Memories (Fall Out Boy vs Pokemon)](https://soundcloud.com/gustavkrantzmashups/gotta-catch-the-memories-fall-out-boy-vs-pokemon-theme)
 * ska2tone1 - [A Message To You Ricky (The Specials vs 50 Cent)](https://www.youtube.com/watch?v=itmiXhCFrn4)
 * Captain Flotman - [Acceptable In The Grapevine (Calvin Harris vs Marvin Gaye)](https://soundcloud.com/captain-flotman/acceptable-in-the-grapevine)
 * McMaNGOS - [Beastie Birds (Beastie Boys vs Angry Birds)](https://soundcloud.com/mcmangos/beastie-birds)
