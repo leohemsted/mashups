@@ -22,6 +22,7 @@ ALBUMS
 * [Psybrid Theory - RosalinaSama & Triple-Q](http://triple-q.bandcamp.com/album/psybrid-theory) - every song from hybrid theory mashed up with Gangnam Style
 * [Mashin' Pit - DJ BAHLER](https://djbahler.bandcamp.com/album/mashin-pit)
 * [Walt Disnizzle - ARKHAM.p77](https://soundcloud.com/arkham_p77/walt_disnizzle)
+* [Gold N' Fly - Alex Kresovich](http://goldnfly007.blogspot.co.uk/)
 
 HONOURABLE MENTIONS
 ===================
