@@ -10,7 +10,7 @@ BEST MASHUPS EVER
 1. Ilson - [I would have left her too (Caribou vs Destiny's Child)](https://soundcloud.com/ilson/ilson-i-would-have-left-her)
 1. Carlos Serrano - [Something About The Fire (Adele vs Daft Punk)](https://www.youtube.com/watch?v=4nVJ4WhYVWA)
 1. Bigfoot William - [Touch the Sky (Kanye West vs Shire Theme)](https://soundcloud.com/willpjohnson/touch-the-sky-shire-theme)
-1. Patombomb - [McMashup Part 2 (Hans Zimmer vs Justin Timberlake)](https://www.youtube.com/watch?v=V8XttfTd_zU&t=4m15s) (specifically the last section)
+1. chafenheimer - [Bitch I Look Like Goku (Soulja Boy vs Dragonball Z)](https://www.youtube.com/watch?v=7b0oQkjup4Q)
 
 ALBUMS
 ======
@@ -38,6 +38,7 @@ HONOURABLE MENTIONS
 * LeeDM101 - [Crazy Rabbit (Seal vs The Doors vs UNKLE vs Miles Davis)](https://www.youtube.com/watch?v=wGWofc7lYZU)
 * Alessandro Grespan - [Miles Davis vs LCD Soundsystem](http://www.youtube.com/watch?v=huEtJw7pfLk) - just two youtube vids played at the same time
 * DJ Nada One - [Ye of Thrones (Kanye West vs Game of Thrones)](https://soundcloud.com/djnadaone/ye-of-thrones)
+* Patombomb - [McMashup Part 2 (Hans Zimmer vs Justin Timberlake)](https://www.youtube.com/watch?v=V8XttfTd_zU&t=4m15s) (specifically the last section)
 * Billy Bo Kyhlla - [Forgot About Rasputin (Dr. Dre vs Boney M)](https://www.youtube.com/watch?v=WG4xTPAEoYY)
 * SmithAgentSmith - [Stuntin Like Mufasa (Lil Wayne vs Lion King)](https://www.youtube.com/watch?v=RlSMlUetZ_Y)
 * BreakManBlues - [Mark Ronson ft Bruno Mars vs Super Smash Bros Melee](https://soundcloud.com/breakmanblues/uptown-targets)
