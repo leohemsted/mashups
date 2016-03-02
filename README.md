@@ -1,14 +1,14 @@
 BEST MASHUPS EVER
 =================
 
-1. DJ Lobsterdust - [Stayin' Hot (Nelly vs Bee Gees)](https://www.youtube.com/watch?v=-tlhMRoNJrs)
-1. Isosine - [Psychosocial Baby (Slipknot vs Justin Bieber)](https://www.youtube.com/watch?v=kspPE9E1yGM)
+1. DJ Lobsterdust - [Stayin' Hot (Nelly vs Bee Gees)](https://www.youtube.com/watch?v=ekwod6Py1RI)
+1. Isosine - [Psychosocial Baby (Slipknot vs Justin Bieber)](https://www.youtube.com/watch?v=8VKffcmLpjQ)
 1. pomDeter - [Call Me A Hole (Nine Inch Nails vs Carly Rae Jepsen](https://www.youtube.com/watch?v=5Lm1FL7gWl4)
-1. Neil Cicierega - [Crocodile Chop (System Of A Down vs Elton John)](https://www.youtube.com/watch?v=J4cGqu2_GQQ)
+1. Neil Cicierega - [Crocodile Chop (System Of A Down vs Elton John)](https://www.youtube.com/watch?v=kR0gOEyK6Tg)
 1. Kids & Explosions - [There Is A Burning Ball of Fire In Outer Space (Notorious B.I.G., Destiny's Child, Berlin)](https://www.youtube.com/watch?v=AA4xY8RrDpA)
 1. Hood Internet - [Backstreet Shake It Off (Taylor Swift vs Kendrick Lamar)](https://www.youtube.com/watch?v=f6m37Op3_JY)
 1. Ilson - [I would have left her too (Caribou vs Destiny's Child)](https://soundcloud.com/ilson/ilson-i-would-have-left-her)
-1. Carlos Serrano - [Something About The Fire (Adele vs Daft Punk)](https://www.youtube.com/watch?v=4nVJ4WhYVWA)
+1. Carlos Serrano - [Something About The Fire (Adele vs Daft Punk)](www.vimeo.com/49757843)
 1. Bigfoot William - [Touch the Sky (Kanye West vs Shire Theme)](https://soundcloud.com/willpjohnson/touch-the-sky-shire-theme)
 1. chafenheimer - [Bitch I Look Like Goku (Soulja Boy vs Dragonball Z)](https://www.youtube.com/watch?v=7b0oQkjup4Q)
 
